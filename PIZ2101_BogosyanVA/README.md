@@ -11,4 +11,4 @@
 3. Добавить описание
 4. Выполнить коммиты
 
-![alt text](https://www.klerk.ru/ugc/blogPost/08ea2f0efb0e97d145ff211505ebd76e.jpeя)
+![alt text](https://avatars.mds.yandex.net/i?id=d37c41f1b4a8096b0cfd3e5bd73e8439_l-4286590-images-thumbs&n=13)
